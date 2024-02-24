@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @shahwezhere
-- 👀 I’m interested in collaborative leaening...
+- 👀 I’m interested in collaborative learning...
 - 🌱 I’m currently learning .website engineering..
 - 💞️ I’m looking to collaborate on website desiging
 - 📫 How to reach me shahwezhere
